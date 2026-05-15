@@ -1,4 +1,4 @@
-# 
+# AI-powered NFT Mint Bot for nft mint bot | take-profit & profit-calculator is the best nft mint bot, featuring take-profit and profit-calculator. Fast, smart, and optimized for
 
 
 
